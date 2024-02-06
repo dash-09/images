@@ -8,3 +8,6 @@
 ![pp1](https://github.com/dash-09/images/assets/74849401/5d15488b-5efd-4670-a65d-c9a294cb46ff)
 
 ![p34](https://github.com/dash-09/images/assets/74849401/e026a709-1a96-4ccd-a78e-4feaabbf17b2)
+
+![11](https://github.com/dash-09/images/assets/74849401/0fc5d7f8-8a0b-4858-8bb0-ef576c4cb62e)
+![22](https://github.com/dash-09/images/assets/74849401/128c143c-80d4-49f4-b2ea-07967f293731)
