@@ -15,3 +15,5 @@
 ![whole](https://github.com/dash-09/images/assets/74849401/ab183584-79a1-416f-829a-e89ecca23669)
 
 ![2024-02-06-09-52-02-017~2 (1)](https://github.com/dash-09/images/assets/74849401/cff10286-4dad-459d-aa91-9366b9b2275d)
+
+![pic11](https://github.com/dash-09/images/assets/74849401/0e0e8192-d0fc-431f-9507-aa01d5633f71)
