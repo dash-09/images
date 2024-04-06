@@ -26,5 +26,6 @@
 ![WhiteSur](https://github.com/dash-09/images/assets/74849401/e986478f-3046-46f3-8ac2-3b3619b6db54)
 
 
+![solid-color-image](https://github.com/dash-09/images/assets/74849401/8c0985a4-1f16-466b-ad1b-2eb4d7f096e3)
 
 
