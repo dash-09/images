@@ -19,9 +19,9 @@
 ![pic11](https://github.com/dash-09/images/assets/74849401/0e0e8192-d0fc-431f-9507-aa01d5633f71)
 
 ![Screenshot_20240207-075111_MX Player Pro](https://github.com/dash-09/images/assets/74849401/5bc7ce99-c92d-4d9a-982b-c2da8bffc0b8)
+![tabFavicon](https://github.com/dash-09/images/assets/74849401/68e7c5e0-51ed-4e2e-ac32-11a811f6d36f)
 
-![bg](https://github.com/dash-09/images/assets/74849401/ae0c9182-2faa-4755-94e2-9230bce854e2)
-
+ 
 
 ![WhiteSur](https://github.com/dash-09/images/assets/74849401/e986478f-3046-46f3-8ac2-3b3619b6db54)
 
