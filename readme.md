@@ -29,3 +29,7 @@
 ![solid-color-image](https://github.com/dash-09/images/assets/74849401/8c0985a4-1f16-466b-ad1b-2eb4d7f096e3)
 
 
+![installation started issue ](https://github.com/user-attachments/assets/5edc0097-3189-409e-9b81-0d3ed9e2b843)
+
+-- Home laptop issue :
+
